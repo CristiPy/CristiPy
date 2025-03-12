@@ -1,2 +1,2 @@
 - 👋 Hi, I’m @CristiPy
-- 👀 Estoy Interesada en Programas y Proyectos de Diseño Gráfico Creativo
+- 👀 Proyectos de Diseño Gráfico Creativo.
